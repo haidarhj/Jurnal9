@@ -1,1 +1,3 @@
-# Jurnal9
+Nama: Haidar Humam Jaisyurrahiem
+
+NIM : 6706210113
